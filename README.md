@@ -22,3 +22,7 @@ I'll Grab Their Info If I Can, This Isn't A Sign To Go Attack Them, It's Simply 
 " Does Bro Know They're Being Called Out " Ahh Proof. It's Straight Up Embarrassing For Them 😭😭😭 🙏🙏🙏 PLEASE, PLEASE, PLEASE, PLEASE. 
 
 I Know I'm Amazing At Making Skins But, GOD! Don't Copy!! ^_^ 
+
+![Screenshot_20240714-215823_kindlephoto-4455816](https://github.com/user-attachments/assets/11239bd6-2300-469d-ab5f-1360f3c10e35)
+
+THEM TRYING TO COPY THE JOSUKE SKIN I HAVE SHOWN ABOVE 😭😭😭😭
