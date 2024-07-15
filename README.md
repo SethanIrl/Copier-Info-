@@ -15,6 +15,10 @@ I'll Grab Their Info If I Can, This Isn't A Sign To Go Attack Them, It's Simply 
 
 ![Screenshot_20240714-214946_kindlephoto-3940037](https://github.com/user-attachments/assets/8ae82d40-445d-4284-a147-93e08e46d0c2)
 
+![Screenshot_20240714-215204_kindlephoto-4077197](https://github.com/user-attachments/assets/2ee52e81-666f-4266-b7ab-abb82368a894)
+
+( The Other Dark Pony Is A Friend I ALLOWED To Try My Style. ALLOWED, FELLAS!!! THE COPYING LOSER ISN'T!! ) 
+
 " Does Bro Know They're Being Called Out " Ahh Proof. It's Straight Up Embarrassing For Them 😭😭😭 🙏🙏🙏 PLEASE, PLEASE, PLEASE, PLEASE. 
 
 I Know I'm Amazing At Making Skins But, GOD! Don't Copy!! ^_^ 
